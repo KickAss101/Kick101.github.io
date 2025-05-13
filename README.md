@@ -1,1 +1,1 @@
-# Kickass101.github.io
+# Kick101.github.io
